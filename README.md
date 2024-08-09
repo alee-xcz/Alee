@@ -3,7 +3,7 @@
 🦇I'm Alee 🦇
 
 
-### -My dream is to be a chef🥓
+### -Meu sonho é ser cozinheiro🥓
 
 ![descrição do GIF](https://media.tenor.com/Eo809pAALoYAAAAi/bat.gif)
 
