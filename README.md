@@ -1,4 +1,4 @@
-# (_) Hello there 👻
+# Hello there 👻
 
 🦇I'm Alee 🦇
 
